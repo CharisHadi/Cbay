@@ -1,0 +1,1 @@
+Ay yo setting up a new remote repository realearning stuff be tough 
